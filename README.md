@@ -1,1 +1,3 @@
-Random guy who makes games :D
+--- DucksAreVeryCoolDev ---
+
+I like to mod stuff :D
